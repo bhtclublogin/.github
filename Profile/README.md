@@ -7,19 +7,19 @@
   <img src="https://i.imageupload.app/157e356365a025cd6925.png" alt="Raja Luck Register Now" width="100%" height="auto" style="margin:15px 0;" />
 </a>
 
-# Raja Luck Register & Login (2026)
+# BHT CLUB Register & Login (2026)
 
-**Raja Luck** is a trusted gaming and earning platform that lets users play fun games and earn instant cash rewards.  
+**BHT CLUB** is a trusted gaming and earning platform that lets users play fun games and earn instant cash rewards.  
 In this updated 2026 guide, you’ll learn how to **register**, **login**, and claim rewards using the official **invite code 314661175843**.
 
 
 
-## What Is Raja Luck?
+## What Is BHT CLUB?
 
-**Raja Luck** offers multiple skill-based and casual games that reward players for participation and referrals.  
+**BHT CLUB** offers multiple skill-based and casual games that reward players for participation and referrals.  
 It’s available on both Android and iOS, offering fast performance, easy withdrawals, and a secure gaming experience.  
 
-Once you complete **Jalwa Game Register**, you can instantly log in and start earning.
+Once you complete **BHT CLUB Register**, you can instantly log in and start earning.
 
 
 
@@ -42,17 +42,16 @@ Follow these steps to get started safely:
 3. Enter your **mobile number** and **create a password**.  
 4. Enter the **invite code 314661175843** for a welcome bonus.  
 5. Verify your mobile number with the OTP received.  
-6. Done — your **Jalwa Game Register** process is complete.
+6. Done — your **BHT CLUB Register** process is complete.
 
 You can now proceed to **login** and start playing.
 
 
 
-## How to Login to Jalwa Game
-
+## How to Login to BHT CLUB
 After completing registration, you can log in easily:
 
-1. Open the **Jalwa Game Login** page or mobile app.  
+1. Open the **BHT CLUB Login** page or mobile app.  
 2. Enter your **registered mobile number** and **password**.  
 3. Click on **Login** to access your account.  
 
@@ -60,9 +59,9 @@ Once logged in, you’ll see your wallet balance, referral link, and games dashb
 
 
 
-## Download the Jalwa Game App
+## Download the BHT CLUB App
 
-The official **Jalwa Game App** gives the best experience on mobile.  
+The official **BHT CLUB App** gives the best experience on mobile.  
 
 **To install:**
 1. Visit the website.  
