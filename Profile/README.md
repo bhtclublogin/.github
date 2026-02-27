@@ -6,6 +6,7 @@
 <a href="https://www.jalwagame6.com/#/register?invitationCode=31712100134" target="_blank" rel="follow">
   <img src="https://i.imageupload.app/157e356365a025cd6925.png" alt="Raja Luck Register Now" width="100%" height="auto" style="margin:15px 0;" />
 </a>
+<meta name="google-site-verification" content="fYMe7BmBDr1lkvhyg0rbwJiKNSasF59HPqLOcT018pA" />
 
 # BHT CLUB Register & Login (2026)
 
